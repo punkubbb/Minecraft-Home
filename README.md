@@ -4,4 +4,4 @@
 <br>
 <a href="https://ibb.co/R0FvCnq"><img src="https://i.ibb.co/VS1jvys/Capture.png" alt="Capture" border="0"></a>
 <br>
-Facebook : https://www.facebook.com/nobphakhu.nachipoon/
+Facebook : https://www.facebook.com/pun.leopard
